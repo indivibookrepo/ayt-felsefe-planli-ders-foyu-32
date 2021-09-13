@@ -1,0 +1,1 @@
+# ayt-felsefe-planli-ders-foyu-32
